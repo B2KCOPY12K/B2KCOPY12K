@@ -8,5 +8,8 @@
 B2KCOPY12K/B2KCOPY12K is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-Diamonds 999999999
-Free
+Free Diamonds 9999999
+Free code
+Free scar 
+Free all
+I.m have diamonds 99999999
